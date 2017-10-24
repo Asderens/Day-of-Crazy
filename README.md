@@ -1,0 +1,2 @@
+# Day-of-Crazy
+(joke)
